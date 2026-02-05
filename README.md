@@ -1,8 +1,8 @@
-### TKmaru-kaninabe
+### TKmaru-Crab hotpot
 
 ## This is like my introduction
 
-Hello. I'm TKmaru-kaninabe. I'm a novice who only makes silly things, but I hope you'll support me.🙇
+Hello. I'm TKmaru-Crab hotpot. I'm a novice who only makes silly things, but I hope you'll support me.🙇
 
 Here is an introduction to my work
 
