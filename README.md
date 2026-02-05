@@ -22,4 +22,8 @@ I worked the hardest, but I was least in demand. (Sad)
 
 ### Please stay healthy and give me a star & follow. 🙇
 
+Oops, I forgot to write my Qiita URL.
+
+My Qiita URL is https://qiita.com/?utm_source=pwa
 Have a nice day.😀
+
